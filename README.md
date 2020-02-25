@@ -19,9 +19,9 @@ Please ensure to submit a digital copy of Valid ID(Aadhar, Voter ID etc) with th
 
 ## Reach On Time
 
-All candidates are requested to reach at the venue 10 minutes prior of scheduled start time for meetup / event. You may miss some important topics, also it could also distract the other members.
+All candidates are requested to reach at the venue 10 minutes prior of scheduled start time for meetup / event. You may miss some important topics, also it could distract the other members.
 
-Late comming requests would not be entertained.
+Late coming requests would not be entertained.
 
 ## Carry Your Laptop (with full charged)
 
@@ -44,20 +44,20 @@ If anyone found to encourage any activity like this could be fined or legal acti
 
 We are advised to use the public vehicle to reach on desired location. Most of the time parking facility may not been provided by the venue partner. So any private vehicle would be parked by at own risk. 
 
-Community or venue provider will not be responsible for any mis-happning.
+Community or venue provider will not be responsible for any mis-happening.
 
 
 ## Contact Of Point
 
-For any type of announcements / changes in schedule would be publised using social media channels. So make sure you are following us on social media to ensure you have not missed any update.
+For any type of announcements / changes in schedule would be published using social media channels. So make sure you are following us on social media to ensure you have not missed any update.
 
-For any kind of support / suggestions. Reach us on ludhiana@laravellive.in or the contatct details provided on allevents page.
+For any kind of support / suggestions. Reach us on ludhiana@laravellive.in or the contact details provided on allevents page.
 
 
 ## Important Notes
 
-Please read the given Prerequisite & Terms (on allevents page) carefully to prevent any inconvenience at last moment. Our meetup venue vary most of the time and all amenities are subject to change and totally depends on location. Please equipped yourself with following to avoid any unusual dependency.
+Please read the given Pre-requisite & Terms (on allevents page) carefully to prevent any inconvenience at last moment. Our meetup venue vary most of the time and all amenities are subject to change and totally depends on location. Please equipped yourself with following to avoid any unusual dependency.
 
-Must ensure you have not taken any drugs or alchohal products. In such case you may not allowed to enter in confrence area or could be punished too. Carry medicines if you are advised to be taken by physician. Make sure you are totally fine to atten the meetup/event.
+Must ensure you have not taken any drugs or alchohal products. In such case you may not allowed to enter in conference area or could be punished too. Carry medicines if you are advised to be taken by physician. Make sure you are totally fine to attend the meetup/event.
 
 **Please approach the coordinator of the event in case of any concern.**
