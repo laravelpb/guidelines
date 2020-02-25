@@ -1,5 +1,6 @@
 Event / Meetup Guidelines
 ---------------------------------------------------
+It contains the important guidelines that must be followed by each attendees. Please read this carefully.
 
 
 ## Registration (Book Your Ticket)
@@ -59,4 +60,4 @@ Please read the given Prerequisite & Terms (on allevents page) carefully to prev
 
 Must ensure you have not taken any drugs or alchohal products. In such case you may not allowed to enter in confrence area or could be punished too. Carry medicines if you are advised to be taken by physician. Make sure you are totally fine to atten the meetup/event.
 
-Please approach the coordinator of the event in case of any concern.
+**Please approach the coordinator of the event in case of any concern.**
