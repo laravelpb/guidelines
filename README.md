@@ -35,9 +35,9 @@ Late coming requests would not be entertained.
 
 ## Maintain Distance From Office/Venue Premises
 
-All attendees must maintain distance from assests present at office/venues. Most of the times we use working areas so it's strictly prohibited.
+All attendees must maintain distance from assets present at office/venues. Most of the times we use working areas so it's strictly prohibited.
 
-As all these community Meetups sponsered by any respective venue provider so it's our responsibility to respect it and maintain the discipline.
+As all these community Meetups sponsored by any respective venue provider so it's our responsibility to respect it and maintain the discipline.
 
 If anyone found to encourage any activity like this could be fined or legal action could be taken against him/her.
 
