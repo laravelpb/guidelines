@@ -53,7 +53,7 @@ Community or venue provider will not be responsible for any mis-happening.
 
 For any type of announcements / changes in the schedule would be published using social media channels. So make sure you are following us on social media to ensure you have not missed an update.
 
-For any kind of support / suggestions. Reach us on ludhiana@laravellive.in or the contact details provided on allevents page.
+For any kind of support / suggestions. Reach us on laravellive@gmail.com or the contact details provided on allevents page.
 
 
 ## Important Notes
